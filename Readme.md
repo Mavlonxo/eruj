@@ -1,2 +1,1 @@
 Salom nima gapla
-Laylo
